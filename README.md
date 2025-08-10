@@ -1,3 +1,5 @@
+![LinkedIn Panner-2](https://github.com/user-attachments/assets/10f59e09-777d-4b0c-b5eb-eb3155df84a2)
+
 # 💫 About Me:
 I'm currently studying<br> 
 
